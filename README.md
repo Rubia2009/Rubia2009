@@ -1,0 +1,2 @@
+- Hi, I’m Rubia Oliveira Schimitz
+- Eu sou uma estudante
